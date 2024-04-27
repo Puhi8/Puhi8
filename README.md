@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Puhi8.
+- 👀 I’m interested in all about computers.
+- 🌱 I’m currently learning the skills I would need to become a software developer.
+- 📫 How to reach me ...
+- ⚡ Fun fact: I love scuba diving.
